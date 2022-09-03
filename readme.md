@@ -1,3 +1,5 @@
+Project Group 2 - Type Mania
+
 MEMBER CONTACT INFO:
 Shaka George Elmore - sgelmore@mail.fhsu.edu
 Alexandra Stevens - acstevens@mail.fhsu.edu
