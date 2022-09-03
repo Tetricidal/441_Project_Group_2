@@ -1,3 +1,10 @@
+MEMBER CONTACT INFO:
+Shaka George Elmore - sgelmore@mail.fhsu.edu
+Alexandra Stevens - acstevens@mail.fhsu.edu
+Nargis Sultani - n_sultani@mail.fhsu.edu
+Heather Nicole Vroman - hnvroman@mail.fhsu.edu
+
+PROJECT MATERIALS:
 Proposal task schedule -> https://docs.google.com/document/d/1_oYmzBh3hIXzD5w2F3jI1t-zI4IlO21RXBw4dSn6_Fs/edit
 Continuous meeting notes -> https://docs.google.com/document/d/1HH35up8GUZ_ZgnCoFDyl69LqZK0v9Bi6RSrhoukiOqc/edit#
 Proposal example -> https://docs.google.com/document/d/1Hm-m8Dw5wIgtGwfrvhq2QKgm7zObmbiIQB_qp9Ytm68/edit
