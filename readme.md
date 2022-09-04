@@ -10,7 +10,7 @@ Alexandra Stevens - acstevens@mail.fhsu.edu
 
 Nargis Sultani - n_sultani@mail.fhsu.edu
 
-Heather Nicole Vroman - hnvroman@mail.fhsu.edu
+Heather Nicole Vroman - hnvroman@mail.fhsu.edu, for faster response use heathernvroman@gmail.com
 
 
 
