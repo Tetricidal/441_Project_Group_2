@@ -27,3 +27,5 @@ Final Proposal (for submission) -> https://docs.google.com/document/d/111QvIt4NK
 Name Brainstorming -> https://docs.google.com/document/d/1yfXzpHDH45kE48XiBs8Y3Jpa94L_zQcA8yBaSz3Dc70/edit?usp=sharing
 
 Feature Brainstorming -> https://docs.google.com/document/d/1qZRRdifP9da9eZNJtDfKd5Nbihw-UtWfe4NT91dYLGo/edit?usp=sharing
+
+Research Information -> https://docs.google.com/document/d/11cggJachYBI5rVOnlH7RMO8UUA_kjS6_ADBoXrR3a7g/edit
